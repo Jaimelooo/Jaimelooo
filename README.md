@@ -21,6 +21,8 @@
 - Personal website [link](https://www.jaimemoyaescobar.fr)
 - I’m currently open for a new job opportunity
 - I like to walk with my dog
+- In my spare time I like to play paddle tennis
+- My favorite drink is "mate"
 
 <br><br>
 
